@@ -1,1 +1,1 @@
-# DOnt Get Kicked Out 
+# Dont Get Kicked Out 
